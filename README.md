@@ -1,4 +1,4 @@
-# Python-Ransomware
+# Ransomware sapeeeeeeeee
 
 YouTube Tutorial: https://www.youtube.com/watch?v=ScL07VJJOX4
 
